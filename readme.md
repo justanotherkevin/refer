@@ -89,7 +89,7 @@ Not landing a job is time lost; Working with recuriter is diffcult, and working 
 This is not okay!:
 
 * Ghost you
-* Send you to jobs that not not relavent
+* Send you to jobs that is not relavent
 * Blast your resume to other
 
 Lets give the power to the people who is looking for a job.
